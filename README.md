@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ALLASSYE
+- 👀 I’m interested in all related pc input devices and its software developing.
+- 🌱 I’m currently learning coding software
+- 💞️ I’m looking to collaborate on mechanical keyboards softwre "latncy reduction, RGB customization" and a lot of cool stuff trying to figure it out.
+- 📫 reach me @allassye on instgram
